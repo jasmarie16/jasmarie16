@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any projects involving web.
 - 📫 Contact me by shooting an email to jasminefebus40@gmail.com or messaging my discord at jm__16.
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: my favorite season is fall!
+- ⚡ Fun fact: My favorite season is fall!
 
 <!---
 jasmarie16/jasmarie16 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
